@@ -4,7 +4,7 @@
 
 ps：选择机场主要看线路稳定性、节点数量和使用体验，建议先体验再购买。
 
-### 🚀 [Connectigo机场｜全球高速节点，稳定好用，性价比不错](https://vpn001.connectigo.net/#/register?code=vqOU3uxP)
+### 🚀 [Connectigo机场｜全球高速节点，稳定好用，性价比不错](https://vpn002.connectigo.net/#/register?code=vqOU3uxP)
 
 Connectigo 提供香港、日本、新加坡、美国等多地区订阅节点，适合日常科学上网、ChatGPT、Claude、Gemini、YouTube、Netflix 等海外平台访问。
 
@@ -12,6 +12,6 @@ Connectigo 提供香港、日本、新加坡、美国等多地区订阅节点，
 
 节点选择丰富，套餐灵活，日常使用比较方便，适合需要稳定海外网络连接的用户。
 
-**👉 [点击注册 Connectigo，查看最新套餐与优惠](https://vpn001.connectigo.net/#/register?code=vqOU3uxP)**
+**👉 [点击注册 Connectigo，查看最新套餐与优惠](https://vpn002.connectigo.net/#/register?code=vqOU3uxP)**
 
 个人建议，选择机场不要只看价格，线路稳定、客服响应和实际使用体验更重要，最好先短期体验。
